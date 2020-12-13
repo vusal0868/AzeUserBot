@@ -41,4 +41,4 @@ Herhangi bir istek, şikayet ve öneriniz varsa [dəstək grubuna](https://t.me/
 
 [AzeUserBot Telegram](https://t.me/vusal0868)
 
-[AzeUserBot Telegram](BayEgo#WOM)
+[AzeUserBot Telegram](https://t.me/bayyegoo)
